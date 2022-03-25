@@ -11,3 +11,13 @@ Assessment should be accessed through the GitHub Classroom link provided in your
 A complete assessment is a meaningful and valid attempt on every answer. Incomplete assessments will not be reviewed.
 
 Assessments are due *before* class begins on the following Monday.
+
+
+
+
+Read and understood.
+Alexis G. Ranga
+
+Date started: 25MAR2022
+
+* Due Date: 04APR2022
