@@ -20,4 +20,8 @@ Alexis G. Ranga
 
 Date started: 25MAR2022
 
-* Due Date: 04APR2022
+Date completed/submitted: 05APR2022
+
+* Requested for late submission due to military obligation after PD week.
+* All assessments are current.
+
